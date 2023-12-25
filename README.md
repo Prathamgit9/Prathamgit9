@@ -5,7 +5,7 @@
 - 📫 How to reach me:
   1. Dm me on Instagram: https://www.instagram.com/pratham_993
   2. Message on Linkedin: https://linkedin.com/in/prathamn09092003
-  3. Mail me at @pra8164@gmail.com
+  3. Mail me at @prathamnarang8164@gmail.com
 
 <!---
 Prathamgit9/Prathamgit9 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
